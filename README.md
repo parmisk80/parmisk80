@@ -67,5 +67,5 @@
 
 ## 📫 Contact
 
-📧 Email: parmiskooshki@gmail.com  
-🔗 LinkedIn: [Parmis Kooshki]([https://www.linkedin.com/in/Parmis_Kooshki](https://www.linkedin.com/in/parmis-kooshki-768579393?utm_source=share_via&utm_content=profile&utm_medium=member_ios))
+📧 Email: parmiskouoshki@gmail.com  
+🔗 LinkedIn: ([https://www.linkedin.com/in/Parmis_Kooshki](https://www.linkedin.com/in/parmis-kooshki-768579393?utm_source=share_via&utm_content=profile&utm_medium=member_ios))
