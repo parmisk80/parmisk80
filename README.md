@@ -1,6 +1,6 @@
 # Hi, I'm Parmis Kooshki 👋
 
-SoftWare Engineer & AI Developer
+Software Engineer & AI Developer
 
 🎓 Bachelor of Computer Science   
 🤖 AI & Machine Learning Enthusiast  
